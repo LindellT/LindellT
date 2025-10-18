@@ -1,1 +1,1 @@
-# visma-thomas-lindell
+# LindellT
